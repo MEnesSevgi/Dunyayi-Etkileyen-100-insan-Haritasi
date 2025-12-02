@@ -1,0 +1,1 @@
+# Dunyayi-Etkileyen-100-insan-Haritasi
